@@ -1,1 +1,0 @@
-# Gurudutt.github.io
